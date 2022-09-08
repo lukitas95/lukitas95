@@ -12,5 +12,6 @@ I am a self-taught, sociable and skilled person.
 
 📌 Linkedin: https://www.linkedin.com/in/lucas-montaner/
 
-I attached my resume here: [CVitae - Lucas Montaner.pdf](https://github.com/lukitas95/lukitas95/files/9529588/CVitae.-.Lucas.Montaner.pdf)
+I attached my resume here: [CVitae - Lucas Montaner.pdf](https://github.com/lukitas95/lukitas95/files/9529712/CVitae.-.Lucas.Montaner.pdf)
+
 
